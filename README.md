@@ -1,0 +1,1 @@
+The "People Analytics project focuses on Cognizant Technology Solutions, analyzing the importance of HRM within the company and conducting statistical tests to benefit organizational strategies and employee management.
